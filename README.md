@@ -13,7 +13,6 @@
     I love the challenge of finding caches and spending time to meet new people.
   </samp>
 </p>
-<hr>
 
 
 
